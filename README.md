@@ -9,13 +9,7 @@
 - [Mubashar Nouman](https://www.youtube.com/channel/UC6lUUWMyuiibsJzV8BNdaEQ)
  -->
 
-🤵 Founder & CEO of @techviochats @internee.pk 🤖
-	
-👨‍💻 Lead NLP Developer at HandyHelps
-
-🔥 NLP & VUI Consultant and Web Developer 
-	
-💰 RISING TALENT at UPWORK ✅
+🤵 Dealing With Generative AI And Automation Stuff 
 
 💸 LEVEL-01 SELLER of DIALOGFLOW on Fiverr
 	
